@@ -1,1 +1,6 @@
 # 2018-election
+
+Here is my forecast. Democrats will win the house, but fail to take back the senate.
+In the 2016 election, blue turnout was extremely low arguably because of low excitement about Hillary Clinton as a candidate. However, in this midterm election, people seem to be much more excited about the democratic party as a whole 
+Of the number of seats up for contention in the house, the vast majority are republican seats. 16 seats are up for contention that lean democrat; whereas 29 seats are up for contention that lean republican, and 30 seats are extremely contentious. All of these seats which either lean democrat or are in high contention are currently controlled by republicans. If democrats win every race that leans in their direction, and win 50% of the races which are in high contention, then this means they would win 31 seats this cycle and gain control of the house. 
+In the senate, however, many many more democratic seats are up for reelection than republican ones, and it is unlikely that the democrats will gain enough seats to actually gain control of the Senate. The Cruz O'Rourke election has seen a lot of national attention, but the nationalistic fear-mongering anti-immigration sentiment he espouses will help keep Ted Cruz in power. Too many Texans are Republicans at this time.
